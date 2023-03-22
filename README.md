@@ -5,12 +5,20 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 🔭 I’m currently working on ...A Desmaterialização da minha forma fisica
+- 🌱 I’m currently learning ...Nada
+- 👯 I’m looking to collaborate on ...Sla
+- 🤔 I’m looking for help with ...Oq der ai Fml
+- 💬 Ask me about ...Tudo, E nada
+- 📫 How to reach me: ...Oraivos Muito,e uma hora responderei tuas preces
+- 😄 Pronouns: ...Unbelievable/Ó Senhor/Mi lorde/Pai-De-Todos/Todo Poderoso
+- ⚡ Fun fact: ...Not Funny
 -->
+- 🔭 I’m currently working on ...A Desmaterialização da minha forma fisica
+- 🌱 I’m currently learning ...Nada
+- 👯 I’m looking to collaborate on ...Sla
+- 🤔 I’m looking for help with ...Oq der ai Fml
+- 💬 Ask me about ...Tudo, E nada
+- 📫 How to reach me: ...Oraivos Muito,e uma hora responderei tuas preces
+- 😄 Pronouns: ...Unbelievable/Ó Senhor/Mi lorde/Pai-De-Todos/Todo Poderoso
+- ⚡ Fun fact: ...Not Funny

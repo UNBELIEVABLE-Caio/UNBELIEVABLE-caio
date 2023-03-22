@@ -22,3 +22,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...Oraivos Muito,e uma hora responderei tuas preces
 - 😄 Pronouns: ...Unbelievable/Ó Senhor/Mi lorde/Pai-De-Todos/Todo Poderoso
 - ⚡ Fun fact: ...Not Funny
+
+## Ferramentas e Tecnologias
